@@ -1,4 +1,4 @@
-# 
+# Lightweight Soda PDF plugins for Mac OS | Elite Soda PDF plugins for PC Windows. Featuring receipt capture and payment processing — optimized for maximum performance on every platform.
 
 
 
